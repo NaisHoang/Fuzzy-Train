@@ -9,19 +9,19 @@ Les sandwiches étaient vendus à 10€.
 
 L'expresso à 8€, ça va.
 
-Une question résonne dans les haut-parleurs du train.
+Une question résonna dans les hauts-parleurs du train.
 
-Un contrôleur ouvre la porte de la voiture D14.
+Un contrôleur ouvrit la porte de la voiture D14.
 
-Léo Bindner se lève, et lui jette 2CB au visage.
+Léo Bindner se leva, et lui jeta 2CB au visage.
 
-Le contrôleur est furieux : il s'agit en fait de Jean-Baptiste avec une moustache.
+Le contrôleur était furieux : il s'agissait en fait de Jean-Baptiste avec une moustache.
 
-Jean-Baptiste sort un pieu et hurle de douleur, regardant les yeux de 2CB se fermer doucement.
+Jean-Baptiste sortit un pieu et hurla de douleur, regardant les yeux de 2CB se fermer doucement.
 
-𝓢𝓸𝓾𝓭𝓪𝓲𝓷 𝓵𝓮 𝓽𝓻𝓪𝓲𝓷 𝓼'𝓪𝓻𝓻ê𝓽𝓮. 𝓘𝓵 𝔂 𝓪 𝓾𝓷𝓮 𝓶𝓸𝓾𝓬𝓱𝓮 𝓼𝓾𝓻 𝓵𝓮𝓼 𝓿𝓸𝓲𝓮𝓼.
+𝓢𝓸𝓾𝓭𝓪𝓲𝓷 𝓵𝓮 𝓽𝓻𝓪𝓲𝓷 𝓼'𝓪𝓻𝓻ê𝓽a. 𝓘𝓵 𝔂 𝓪vait 𝓾𝓷𝓮 𝓶𝓸𝓾𝓬𝓱𝓮 𝓼𝓾𝓻 𝓵𝓮𝓼 𝓿𝓸𝓲𝓮𝓼.
 
-Le trafic est interrompu jusqu'à nouvel ordre.
+Le trafic était interrompu jusqu'à nouvel ordre.
 
 
-*Trois heures plus tard, le train repart...*
+*Trois heures plus tard, le train repartit...*
