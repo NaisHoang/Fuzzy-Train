@@ -24,4 +24,4 @@ Jean-Baptiste sort un pieu et hurle de douleur, regardant les yeux de 2CB se fer
 Le trafic est interrompu jusqu'à nouvel ordre.
 
 
-*Trois heures plus tard...*
+*Trois heures plus tard, le train repart...*
