@@ -27,3 +27,9 @@ Le trafic était interrompu jusqu'à nouvel ordre.
 *Trois heures plus tard, le train repartit...*
 
 FIN ?
+
+*J'ai adoré cette histoire, 10/10 !*
+
+*Une vrai réussite !*
+
+*Captivant et intense.*
