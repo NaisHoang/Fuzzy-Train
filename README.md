@@ -19,7 +19,7 @@ Le contrôleur était furieux : il s'agissait en fait de Jean-Baptiste avec une 
 
 Jean-Baptiste sortit un pieu et hurla de douleur, regardant les yeux de 2CB se fermer doucement.
 
-𝓢𝓸𝓾𝓭𝓪𝓲𝓷 𝓵𝓮 𝓽𝓻𝓪𝓲𝓷 𝓼'𝓪𝓻𝓻ê𝓽a. 𝓘𝓵 𝔂 𝓪𝓿𝓪𝓲𝓽 𝓾𝓷𝓮 𝓶𝓸𝓾𝓬𝓱𝓮 𝓼𝓾𝓻 𝓵𝓮𝓼 𝓿𝓸𝓲𝓮𝓼.
+𝓢𝓸𝓾𝓭𝓪𝓲𝓷 𝓵𝓮 𝓽𝓻𝓪𝓲𝓷 𝓼'𝓪𝓻𝓻𝓮𝓽𝓪. 𝓘𝓵 𝔂 𝓪𝓿𝓪𝓲𝓽 𝓾𝓷𝓮 𝓶𝓸𝓾𝓬𝓱𝓮 𝓼𝓾𝓻 𝓵𝓮𝓼 𝓿𝓸𝓲𝓮𝓼.
 
 Le trafic était interrompu jusqu'à nouvel ordre.
 
