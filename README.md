@@ -13,8 +13,11 @@ L'expresso à 8€, ça va.
 
 Un contrôleur ouvre la porte de la voiture D14.
 
-Léo Bindner se lève et lui jette 2CB au visage.
+Léo Bindner se lève, et lui jette 2CB au visage.
 
 Le contrôleur est furieux : il s'agit en fait de Jean-Baptiste avec une moustache.
 
-Jean-Baptiste sort un pieu et hurle de douleur.
+Jean-Baptiste sort un pieu et hurle de douleur, regardant les yeux de 2CB se fermer doucement.
+
+Soudain le train s'arrête. Il y a une mouche sur les voies
+
