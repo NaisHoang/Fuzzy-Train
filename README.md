@@ -17,4 +17,8 @@ Léo Bindner se lève, et lui jette 2CB au visage.
 
 Le contrôleur est furieux : il s'agit en fait de Jean-Baptiste avec une moustache.
 
-Soudain le train s'arrête. Il y a une mouche sur les voies.
+Jean-Baptiste sort un pieu et hurle de douleur, regardant les yeux de 2CB se fermer doucement.
+
+Soudain le train s'arrête. Il y a une mouche sur les voies
+
+
