@@ -21,3 +21,4 @@ Jean-Baptiste sort un pieu et hurle de douleur, regardant les yeux de 2CB se fer
 
 𝓢𝓸𝓾𝓭𝓪𝓲𝓷 𝓵𝓮 𝓽𝓻𝓪𝓲𝓷 𝓼'𝓪𝓻𝓻ê𝓽𝓮. 𝓘𝓵 𝔂 𝓪 𝓾𝓷𝓮 𝓶𝓸𝓾𝓬𝓱𝓮 𝓼𝓾𝓻 𝓵𝓮𝓼 𝓿𝓸𝓲𝓮𝓼.
 
+Le trafic est interrompu jusqu'à nouvel ordre.
