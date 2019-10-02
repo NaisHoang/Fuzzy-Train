@@ -9,4 +9,4 @@ Les sandwiches étaient vendus à 10€.
 
 L'expresso à 8€, ça va.
 
-D'où ça me delete
+" D'où ça me delete ? " Une question résonne dans les haut-parleurs du train.
