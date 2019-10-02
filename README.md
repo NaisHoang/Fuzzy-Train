@@ -10,3 +10,4 @@ Les sandwiches étaient vendus à 10€.
 L'expresso à 8€, ça va.
 
 Depuis mon siège, j'aperçois une petite fille aux cheveux teints.
+est-elle fraîche?
